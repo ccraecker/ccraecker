@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ccraecker
+- 👀 I’m interested in speedrunning, money, cs and many more exciting things.
+- 🌱 I’m currently learning cs at a school.
+- 💞️ I’m looking to collaborate on many things I'm sure as my life goes on.
+- 😄 Pronouns: he/they
+- ⚡ Fun fact: i got to top 300 on the pokemon showdown gen 9 ou ladder
